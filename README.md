@@ -1,2 +1,2 @@
-# Lab12-dawa
+# Labaratorio
 :)      
